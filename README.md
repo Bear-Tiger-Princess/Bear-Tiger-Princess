@@ -1,16 +1,14 @@
-## Hi there 👋
+tonda gossa ― ！it's me, Kumatora! or you can call me Oppy ！
 
-<!--
-**Bear-Tiger-Princess/Bear-Tiger-Princess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+ ୨ৎ  ㆍ  23 he / they / she (AMAB) ㆍ gay
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+im shy and socially awkward, but i love to chat and make friends ！feel free to send me a whisper ！
+
+
+my main interests is the MOTHER series and Final Fantasy XIV ― ！
+
+╰  i also like ：Fire Emblem, Attack on Titan, My Little Pony
+
+ ╰  making ocs, drawing, rhinos, horses and my birds ♡
+ 
